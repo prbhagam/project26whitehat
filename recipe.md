@@ -1,0 +1,1 @@
+Preheat oven to 350 degrees F. All materials in bowl, stir until mixed. grease pan and pour batter. Put in oven for 25 minutes.
